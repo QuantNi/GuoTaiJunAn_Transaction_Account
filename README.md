@@ -15,8 +15,8 @@
 量化户申请：联系微信 NumPy1990<br>
 
 量化测试系统下载：
-百度链接：https://pan.baidu.com/s/1V0e8YxRTGH421BO1OiSQnQ?pwd=gl3x <br>
-提取码：gl3x <br>
+百度链接：https://pan.baidu.com/s/1rxqg_Q_JTR1du9FR-eNGIw?pwd=kunf<br>
+提取码：kunf <br>
 
 普通股票测试账号：<br>
 营业部：山东济南胜利大街营业部<br>
