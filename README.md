@@ -14,4 +14,16 @@
 开户链接：https://kh.gtja.com/?tgFlag=261916&r=1
 量化户申请：联系微信 NumPy1990
 
+测试系统下载：
+百度链接：https://pan.baidu.com/s/1V0e8YxRTGH421BO1OiSQnQ?pwd=gl3x 
+提取码：gl3x 
+
+普通股票测试账号：
+营业部：山东济南胜利大街营业部
+营业部代码 3702
+资金账号 1690
+密码 7512122
+(如密码无法登陆，烦请用6401011。君智的密码是7512122*）
+柜台：低延时现货
+
 ![微信图片_20221107095306](https://user-images.githubusercontent.com/101326415/200211088-1c47e200-081d-409b-b9b4-dc8e1e544e01.jpg)
