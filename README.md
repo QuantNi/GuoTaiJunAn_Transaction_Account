@@ -11,11 +11,11 @@
 ・定期组织公募/私募经理进行线上线下交流。<br>
 ・新客可专享约定年化8.18% 理财产品。<br>
 
-量化测试系统下载：<br>
+【量化测试系统下载】：<br>
 百度链接：https://pan.baidu.com/s/1rxqg_Q_JTR1du9FR-eNGIw?pwd=kunf<br>
 提取码：kunf <br>
 
-普通股票测试账号：<br>
+【普通股票测试账号】：<br>
 营业部：山东济南胜利大街营业部<br>
 营业部代码 3702<br>
 资金账号 1690<br>
@@ -26,4 +26,5 @@
 开户链接：https://kh.gtja.com/?tgFlag=261916&r=1<br>
 量化户申请：联系微信 NumPy1990<br>
 开户二维码：
+
 ![微信图片_20221107095306](https://user-images.githubusercontent.com/101326415/200211088-1c47e200-081d-409b-b9b4-dc8e1e544e01.jpg)
