@@ -12,8 +12,8 @@
 ・新客可专享约定年化8.18% 理财产品。<br>
 
 【量化测试系统下载】：<br>
-百度链接：https://pan.baidu.com/s/1rxqg_Q_JTR1du9FR-eNGIw?pwd=kunf<br>
-提取码：kunf <br>
+百度链接：https://pan.baidu.com/s/1hNFhiNsSFNP0jsnVsVfw3A?pwd=r39x<br>
+提取码：r39x <br>
 
 【普通股票测试账号】：<br>
 营业部：山东济南胜利大街营业部<br>
